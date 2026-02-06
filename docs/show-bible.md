@@ -31,7 +31,8 @@ A short-form scripted parody that mimics prestige reality TV through an anime le
 ## Guest Ensemble – Seoul Sisterhood
 - Midseason stunt crossover with “Seoul Sisterhood,” an aspirational Korean housewives collective visiting LA for a cosmetics summit.
 - Cast: Jiyeon (luxury K-beauty CEO), Hyejin (ex-idol lifestyle host), Minseo (real estate rainmaker). They challenge and mirror the LA crew’s dynamics.
-- Appear in two-to-three episodes (Shopping Trip → Festival Night → Rumor Montage) before jetting back, leaving lingering rivalries and potential alliances.
+- Arc progression: sparks fly during Shopping Trip and Festival Night, but a late-night heart-to-heart/confessional swap reveals shared pressures. Rumor Montage exposes mutual vulnerabilities, leading to a temporary truce.
+- Finale tag hints at a cross-Pacific continuation or sister series, keeping the door open for Season 2 or a spin-off.
 
 ## Season-Long C Plot – "Finding Matcha"
 - Stray calico Matcha drifts through LA shooting days, delivering quick, cute beats each episode.

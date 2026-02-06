@@ -18,14 +18,14 @@
 - Cliffhanger: anonymous DM hints the leak came from inside the friend group.
 
 ## Planned Tropes for Subsequent Episodes (Story Flow)
-1. **Shopping Trip:** Rodeo Drive challenge with visiting Seoul Sisterhood—each group styles the other for the matsuri, fueling cultural one-upmanship.
-2. **Festival Night:** Little Tokyo summer festival anchors midseason split and surprise breakup announcement, amplified by the Korean guests’ fearless stage takeover.
-3. **Rumor-Spreading Montage:** Dedicated short showing the leak mutating online and weaponized by side characters, including Seoul Sisterhood fan accounts.
-4. **Midseason Friendship Breakup:** Reina vs. Mika staged like a dramatic shoujo breakup scene, splitting the cast.
-5. **Hot Springs Truth Circle:** Spa day bottle episode where rumors are confronted under enforced relaxation.
-6. **Beach Episode:** Malibu staycation doubles as “zen content retreat,” but gossip follows and alliances shift.
-7. **Cooking Duel:** Charity cook-off where the leaked spreadsheet resurfaces and forces reluctant teamwork.
-8. **Finale Showcase:** Hybrid gala/live stream resolves the leak mystery with confessionals in chibi mode.
+1. **Shopping Trip:** Rodeo Drive challenge with visiting Seoul Sisterhood—each group styles the other for the matsuri, fueling cultural one-upmanship and misunderstandings.
+2. **Festival Night:** Little Tokyo summer festival anchors midseason split and surprise breakup announcement; a backstage heart-to-heart between Hana and Minseo reveals shared immigrant-family pressures.
+3. **Midseason Friendship Breakup:** Reina vs. Mika staged like a dramatic shoujo breakup scene, with Jiyeon’s blunt critique acting as the final spark.
+4. **Rumor-Spreading Montage:** Dedicated short showing the leak mutating online and weaponized by side characters, including Seoul Sisterhood fan accounts misinterpreting confessionals.
+5. **Hot Springs Truth Circle:** Spa day bottle episode where both crews trade confessionals, discover mutual vulnerabilities, and agree to pause hostilities.
+6. **Beach Episode:** Malibu staycation doubles as “zen content retreat,” now featuring joint content collabs that tease a possible spin-off.
+7. **Cooking Duel:** Charity cook-off where the leaked spreadsheet resurfaces and forces reluctant teamwork; Seoul Sisterhood co-hosts to demonstrate unity.
+8. **Finale Showcase:** Hybrid gala/live stream resolves the leak mystery with confessionals in chibi mode, ending on mutual respect and a wink at future crossovers.
 
 ## Season-Long C Plot – “Finding Matcha”
 - A stray calico cat (dubbed Matcha) keeps wandering through shoots—first spotted sunbathing on Reina’s rooftop in E01.

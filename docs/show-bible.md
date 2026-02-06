@@ -28,5 +28,10 @@ A short-form scripted parody that mimics prestige reality TV through an anime le
 - **Cooking Duel:** Gourmet collab devolves into iron-chef parody with branded bento judging—charity tie-in to prove unity.
 - **Finale Showcase:** Charity gala/live stream that forces everyone back together for reconciliations and cliffhangers.
 
+## Season-Long C Plot – "Finding Matcha"
+- Stray calico Matcha drifts through LA shooting days, delivering quick, cute beats each episode.
+- Cast members project personalities onto Matcha (Reina demands pedigree papers, Hana shares snacks, Aya vlogs detective clues).
+- Culminates in the finale when they co-adopt Matcha as their mascot, symbolizing a softer collective identity.
+
 ## Delivery
 - Weekly drops on YouTube + companion shorts (tagline teasers, confessionals outtakes).

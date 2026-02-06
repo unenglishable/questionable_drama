@@ -27,7 +27,7 @@
 7. **Cooking Duel:** Charity cook-off where the leaked spreadsheet resurfaces and forces reluctant teamwork; Seoul Sisterhood co-hosts to demonstrate unity.
 8. **Finale Showcase:** Hybrid gala/live stream resolves the leak mystery with confessionals in chibi mode, ending on mutual respect and a wink at future crossovers.
 
-## Season-Long C Plot – “Finding Matcha”
-- A stray calico cat (dubbed Matcha) keeps wandering through shoots—first spotted sunbathing on Reina’s rooftop in E01.
-- Each episode features a brief beat where a different housewife tries to coax, pamper, or film Matcha, revealing softer sides amid the drama.
-- Closes in the finale when the group co-adopts Matcha as the official Real Japanese Housewives mascot, tying their growth to a sweet shared responsibility.
+## Season-Long C Plot – “Daruma Diaries”
+- Reina unveils an unpainted daruma doll during E01’s tea, vowing to fill one eye when the channel officially launches and the other when the cast proves they can stay united.
+- Episodes sprinkle in quick beats of the daruma being customized, borrowed for luck, or even kidnapped for pranks—adding levity amid escalating drama.
+- During the finale live stream, both the LA crew and Seoul Sisterhood fill the second eye together, teasing future crossovers.

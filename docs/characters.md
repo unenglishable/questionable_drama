@@ -23,7 +23,7 @@
 ## Hana "Haze" Morimoto – "High Vibe Wild Card"
 - Stoner lifestyle vlogger with a skater network across LA.
 - Conflict trigger: laissez-faire attitude viewed as disloyalty until her heart-to-heart with Minseo exposes shared family expectations.
-- Growth target: realize her intuition can anchor the group and bridge cross-Pacific friendships (plus she champions the Matcha adoption).
+- Growth target: realize her intuition can anchor the group and bridge cross-Pacific friendships (she safeguards the Daruma Diaries project when tensions spike).
 
 ## Seoul Sisterhood Spotlight
 

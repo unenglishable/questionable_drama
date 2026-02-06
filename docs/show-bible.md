@@ -28,6 +28,11 @@ A short-form scripted parody that mimics prestige reality TV through an anime le
 - **Cooking Duel:** Gourmet collab devolves into iron-chef parody with branded bento judging—charity tie-in to prove unity.
 - **Finale Showcase:** Charity gala/live stream that forces everyone back together for reconciliations and cliffhangers.
 
+## Guest Ensemble – Seoul Sisterhood
+- Midseason stunt crossover with “Seoul Sisterhood,” an aspirational Korean housewives collective visiting LA for a cosmetics summit.
+- Cast: Jiyeon (luxury K-beauty CEO), Hyejin (ex-idol lifestyle host), Minseo (real estate rainmaker). They challenge and mirror the LA crew’s dynamics.
+- Appear in two-to-three episodes (Shopping Trip → Festival Night → Rumor Montage) before jetting back, leaving lingering rivalries and potential alliances.
+
 ## Season-Long C Plot – "Finding Matcha"
 - Stray calico Matcha drifts through LA shooting days, delivering quick, cute beats each episode.
 - Cast members project personalities onto Matcha (Reina demands pedigree papers, Hana shares snacks, Aya vlogs detective clues).

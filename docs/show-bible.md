@@ -17,5 +17,16 @@ A short-form scripted parody that mimics prestige reality TV through an anime le
 - Split-screen LA↔Tokyo calls, neon kanji lower-thirds, handheld docu moments contrasted with buttery glam interviews.
 - Color palette: Beverly Hills pearl, neon magenta, temple red, matcha green accent.
 
+## Tropes & Signature Episodes
+- **Beach Episode:** Venice/Malibu getaway doubles as faux retreat, leaning into dramatic sunlit confessionals.
+- **Festival Night:** Summer matsuri pop-up in Little Tokyo sparks fireworks, literal and emotional.
+- **Cooking Duel:** Gourmet collab devolves into iron-chef parody with branded bento judging.
+- **Confessional Chibi Mode:** Deformed avatars highlight spicy quotes in every interview.
+- **Shopping Trip Spectacular:** Rodeo Drive takeover where budgets, alliances, and personal style clash.
+- **Rumor-Spreading Montage:** Gossip sequences use animated text chains drifting across stylized LA skylines.
+- **Hot Springs Truth Circle:** Day trip to a private onsen resort near LA (or immersive spa set) leads to steamy honesty.
+- **Midseason Friendship Breakup:** Formal “we are on a break” declaration framed like a shoujo breakup.
+- **Finale Showcase:** Charity gala/live stream that forces everyone back together for reconciliations and cliffhangers.
+
 ## Delivery
 - Weekly drops on YouTube + companion shorts (tagline teasers, confessionals outtakes).

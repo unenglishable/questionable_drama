@@ -15,12 +15,12 @@
 - Reina hires a fixer; Hana shrugs and smokes with the projectionist.
 - Cliffhanger: anonymous DM hints the leak came from inside the friend group.
 
-## Planned Tropes for Subsequent Episodes
-- **Beach Episode:** Malibu staycation doubles as “zen content retreat,” but gossip follows.
-- **Shopping Trip:** Rodeo Drive challenge—each woman must style another for the matsuri.
-- **Hot Springs Truth Circle:** Spa day bottle episode where rumors are confronted.
-- **Festival Night:** Little Tokyo summer festival anchors midseason split and surprise breakup announcement.
-- **Cooking Duel:** Charity cook-off where the leaked spreadsheet resurfaces.
-- **Rumor-Spreading Montage:** Dedicated short showing the leak mutating online.
-- **Midseason Friendship Breakup:** Reina vs. Mika staged like a dramatic shoujo breakup scene.
-- **Finale Showcase:** Hybrid gala/live stream resolves the leak mystery with confessionals in chibi mode.
+## Planned Tropes for Subsequent Episodes (Story Flow)
+1. **Shopping Trip:** Rodeo Drive challenge—each woman must style another for the matsuri, highlighting simmering tension.
+2. **Festival Night:** Little Tokyo summer festival anchors midseason split and surprise breakup announcement.
+3. **Rumor-Spreading Montage:** Dedicated short showing the leak mutating online and weaponized by side characters.
+4. **Midseason Friendship Breakup:** Reina vs. Mika staged like a dramatic shoujo breakup scene, splitting the cast.
+5. **Hot Springs Truth Circle:** Spa day bottle episode where rumors are confronted under enforced relaxation.
+6. **Beach Episode:** Malibu staycation doubles as “zen content retreat,” but gossip follows and alliances shift.
+7. **Cooking Duel:** Charity cook-off where the leaked spreadsheet resurfaces and forces reluctant teamwork.
+8. **Finale Showcase:** Hybrid gala/live stream resolves the leak mystery with confessionals in chibi mode.

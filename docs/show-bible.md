@@ -18,14 +18,14 @@ A short-form scripted parody that mimics prestige reality TV through an anime le
 - Color palette: Beverly Hills pearl, neon magenta, temple red, matcha green accent.
 
 ## Tropes & Signature Episodes
-- **Beach Episode:** Venice/Malibu getaway doubles as faux retreat, leaning into dramatic sunlit confessionals.
+- **Confessional Chibi Mode:** Deformed avatars highlight spicy quotes in every interview (evergreen stylistic device).
+- **Shopping Trip Spectacular:** Rodeo Drive takeover where budgets, alliances, and personal style clash—sets up festival looks.
 - **Festival Night:** Summer matsuri pop-up in Little Tokyo sparks fireworks, literal and emotional.
-- **Cooking Duel:** Gourmet collab devolves into iron-chef parody with branded bento judging.
-- **Confessional Chibi Mode:** Deformed avatars highlight spicy quotes in every interview.
-- **Shopping Trip Spectacular:** Rodeo Drive takeover where budgets, alliances, and personal style clash.
-- **Rumor-Spreading Montage:** Gossip sequences use animated text chains drifting across stylized LA skylines.
-- **Hot Springs Truth Circle:** Day trip to a private onsen resort near LA (or immersive spa set) leads to steamy honesty.
+- **Rumor-Spreading Montage:** Gossip sequences use animated text chains drifting across stylized LA skylines, escalating post-festival fallout.
 - **Midseason Friendship Breakup:** Formal “we are on a break” declaration framed like a shoujo breakup.
+- **Hot Springs Truth Circle:** Day trip to a private onsen resort near LA (or immersive spa set) as a guided attempt at reconciliation.
+- **Beach Episode:** Venice/Malibu getaway doubles as faux retreat, leaning into dramatic sunlit confessionals once tempers cool.
+- **Cooking Duel:** Gourmet collab devolves into iron-chef parody with branded bento judging—charity tie-in to prove unity.
 - **Finale Showcase:** Charity gala/live stream that forces everyone back together for reconciliations and cliffhangers.
 
 ## Delivery

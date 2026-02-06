@@ -6,11 +6,16 @@
 - **Intent:** lampoon reality tropes while still chasing sincere emotional beats; glam spectacle meets earnest friendship drama.
 
 ## Ensemble Cast
-1. **Reina Sato** – Old-money Beverly Hills tastemaker obsessed with etiquette; struggles to loosen up for the algorithm.
-2. **Mika “Miko” Tan** – Pop-up beauty mogul who treats brunch like a product launch; power-dresser with ruthless polish.
-3. **Aya Fujimoto** – Art curator and nightlife insider who moonlights as the show’s snarky narrator.
-4. **Yumi Aizawa** – Spiritual wellness creator delivering viral meditations while hiding a competitive streak.
-5. **Hana “Haze” Morimoto** – Effortlessly cool stoner lifestyle vlogger whose cosmic advice sometimes solves (or worsens) conflicts.
+1. **Reina Sato – “Protocol Princess”**: Beverly Hills-born/Kyoto-trained etiquette guru whose polished shoots spiral when chaos (and Jiyeon’s critique) strikes; arc pushes her to embrace imperfection and share spotlight.
+2. **Mika “Miko” Tan – “Boss of the Pop-Up”**: Cosmetic chemist with a roaming beauty lab; metrics-first mindset ignites turf wars until the charity cook-off forces her to mentor and collaborate.
+3. **Aya Fujimoto – “Gallery Gossip”**: Art curator/nightlife insider serving razor-sharp commentary; her secret-hoarding fuels the rumor montage before a heart-to-heart with Hyejin softens her outlook.
+4. **Yumi Aizawa – “Zen Hustler”**: Wellness/ASMR creator whose serene brand cracks under competitive pressure; learns to co-create mindful content with Minseo after the shopping showdown.
+5. **Hana “Haze” Morimoto – “High Vibe Wild Card”**: Stoner lifestyle vlogger and skater connector; initially seen as flaky, she becomes the intuitive bridge between the LA crew, the Seoul Sisterhood, and the Daruma Diaries project.
+
+### Guest Ensemble – Seoul Sisterhood
+- **Jiyeon Park** – luxe K-beauty CEO whose blunt feedback triggers the midseason Reina/Mika breakup.
+- **Hyejin Cho** – ex-idol turned lifestyle host who bonds with Aya over media burnout and rumor fallout.
+- **Minseo Kang** – real estate rainmaker scouting LA; her late-night talk with Hana reveals shared family expectations and seeds crossover collabs.
 
 ## Setting
 - Beverly Hills rooftops, Venice Beach smoke-friendly patios, Little Tokyo karaoke lounges, boutique studios, and luxe pop-ups.
